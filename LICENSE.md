@@ -1,1 +1,0 @@
-CC BY 3.0 (footer credits must remain in place)
